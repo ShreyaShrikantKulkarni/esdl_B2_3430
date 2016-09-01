@@ -1,3 +1,2 @@
-abcdefghi
-sfdsraadf
-pinga pori pinga
+sau asman
+kaala chashma
