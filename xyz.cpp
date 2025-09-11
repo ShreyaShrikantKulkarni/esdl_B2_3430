@@ -1,2 +1,1 @@
-sau asman
-kaala chashma
+
